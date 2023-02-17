@@ -5,4 +5,4 @@
   
 結構古くからあって、1992年公開のバットマン・リターンズのコウモリの群れの描画にも使われていたんだとか。ほぇー  
   
-https://yumi-amahane.github.io/Bat_roid/
+https://rie-amasato.github.io/Bat_roid/
